@@ -21,8 +21,7 @@ Click the About link to learn more about this website.
 
 Useful Website
 
-Visit Wikipedia to explore information on different topics.
----
+
 My Personal Website
 
 
